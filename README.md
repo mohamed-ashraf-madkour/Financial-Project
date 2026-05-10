@@ -125,9 +125,3 @@ Through this project, I improved my ability to:
 By
 Mohamed Ashraf  
 Data Analyst | Python & Power BI Enthusiast
-
---------------------------------------------------------------------------------------------------
-
-
-## 🌿 Remember Allah  
-وصلي على النبي ﷺ ❤️
